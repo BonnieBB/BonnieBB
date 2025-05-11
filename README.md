@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 🍵ྀི I'm Bon!:
 🍵ྀི  Comp Sci grad <br>🍵ྀི I like to create fun and cute projects of things im passionate about :) <br>
 
 
