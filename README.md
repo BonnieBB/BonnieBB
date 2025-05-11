@@ -1,4 +1,4 @@
-# 🍵ྀི I'm Bon!:
+# 🍵ྀི I'm Bonnie c:
 🍵ྀི  Comp Sci grad <br>🍵ྀི I like to create fun and cute projects of things im passionate about :) <br>
 
 
